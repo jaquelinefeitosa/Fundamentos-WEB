@@ -4,4 +4,4 @@ Generation Bloco III
 
 ## Tarefas
 
-<h2>Sites: <br>Rock<br>Series</br></h2>
+<h2>Sites: <br>Nanatsu no Taizai 七つの大罪</br></h2>
